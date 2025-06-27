@@ -1,2 +1,0 @@
-# thegermen
-The Germen Bible
